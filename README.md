@@ -1,1 +1,1 @@
-# SI_2024_lab2_226012
+Nikola Golubovski 226012
